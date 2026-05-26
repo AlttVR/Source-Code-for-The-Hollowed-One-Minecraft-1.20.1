@@ -18,4 +18,4 @@ You may not:
 
 Modpack use is allowed only if the mod download links back to the official Hollow Stalker project page or source page, and the author is credited as Render4.
 
-For permission requests, contact Render4 through the official project page.
+For permission requests, contact Render4 through the official project page. Or Via the business email: ww1534121@gmail.com
